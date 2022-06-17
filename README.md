@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @emanuelromano
+- From Argentina
